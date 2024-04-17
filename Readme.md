@@ -1,1 +1,1 @@
-Entrega parcial 2
+Entrega parcial 2 Juan Diego Herrera Castañeda
